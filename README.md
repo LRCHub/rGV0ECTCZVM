@@ -1,0 +1,47 @@
+# Furui Riho – Friends (Album ver.)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+We'll be friends forever
+このままずっとそう
+僕らでいようよいつまでも
+I'm with you wherever you are
+あの日みたいにさ
+馬鹿みたいに笑って
+いくつになっても なっても
+You're my best friends forever
+まるで子供のまま
+変わらずここにいるよ
+I'm your friend I'm your friend
+時は巡り巡り
+人は変わるそれでも
+変わらずここにいるよ
+I'm your friend I'm your friend
+また会おう 手を振れば
+次はいつ会えるかな
+またひとつずつ思い出が
+霞んでいくようで
+若い時間は幻想みたい
+ロマンスは美味しい
+大人になるって
+こういうことなのか
+君と乾杯 お腹いっぱいに
+幸せ頬張ったら
+両手一杯 儚い愛は
+こぼれていきそうで
+いつか増えたシワで
+また笑い合ってくれる?
+昔みたいに 同じようにさ ほら
+You're my best friends forever
+まるで子供のまま
+変わらずここにいるよ
+I'm your friend I'm your friend
+時は巡り巡り
+人は変わるそれでも
+変わらずここにいるよ
+I'm your friend I'm your friend
+I'm your friend I'm your friend
+I'm your friend I'm your friend
+I'm your friend I'm your friend
+```
